@@ -1,1 +1,1 @@
-My name is Prakhar Jha. I am a first year undergraduate student of IIT Kharagpur currently pursuing Electrical Engineering enrolled in its btech course of Instrumentation Engineering. I am from Delhi. I love coding and am interested in web development. I am looking forward to giving my best for SWG
+My favorite Pokémon is Gengar because it's purple and has a mischievous personality.
